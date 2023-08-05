@@ -9,12 +9,12 @@ https://github.com/msterzhang/onelist
 
 #### 电视及手机版二合一：
 ```
-https://www.123pan.com/s/1GzA-Rz2PH.html
+https://www.123pan.com/s/1GzA-JL2PH.html
 ```
 
 #### Windows电脑版：
 ```
-https://www.123pan.com/s/1GzA-Dz2PH.html
+https://www.123pan.com/s/1GzA-IL2PH.html
 ```
 
 ### 软件截图
